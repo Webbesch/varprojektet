@@ -2,7 +2,8 @@
 vårprojektet
 
 Vecka 9
-Vi startar med projektet idag. Jag är i grupp med Arvid och Alfredo.
+Vi startar med projektet idag. Jag är i grupp med Arvid och Alfredo. Vi börjar kolla lite på moodboardsen och lite så.
+
 Vecka 10
 
 Vecka 11
