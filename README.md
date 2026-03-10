@@ -5,7 +5,7 @@ Vecka 9
 Vi startar med projektet idag. Jag är i grupp med Arvid och Alfredo. Vi börjar kolla lite på moodboardsen och lite så. Vi har bestämt oss för att hemsidan ska passa restaurang och med havstema.
 
 Vecka 10
-
+Ingen lektion, lediga (utvecklingssamtal)
 Vecka 11
 
 Vecka 12
