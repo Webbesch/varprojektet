@@ -11,8 +11,8 @@ Vecka 11
 Kollar lite mer på färger och typsnitt och fonter och så. (Bodoni MT) Lite skiss på hur hemsidan kan se ut i stora drag. Gjort en powerpoint för gruppen för lite mer dokumenation med färger typsnitt o.s.v. Det är viktiga punkter enligt oss i gruppen. Färger och backup färger samma med typsnitt och text. Tycker vi fått mycket gjort idag!
 
 Vecka 12
+Vi börjar med att lägga upp lite vad vi ska jobba med på dagens lektion och vad vi behöver göra idag för att även vara så effektiva som möjligt
 
-Vi börjar med att lägga upp lite vad vi ska jobba med på dagens lektion och vad vi behöver göra idag för att även vara s effektiva som möjligt
 Vecka 13
 
 Vecka 14
