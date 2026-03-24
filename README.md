@@ -14,7 +14,7 @@ Vecka 12
 Vi börjar med att lägga upp lite vad vi ska jobba med på dagens lektion och vad vi behöver göra idag för att även vara så effektiva som möjligt. Kollar upp lite bilder och sådant som vi tänker att man kan ha med i hemsidan. Även bussines objectives. Sen har vi gjort en site map. 
 
 Vecka 13
-
+Vi började med att göra en wireframe. Vi känner att vi snart kan börja skriva lite kod.
 Vecka 14
 
 Vecka 15
