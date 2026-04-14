@@ -21,6 +21,7 @@ Vecka 14
 Vecka 15
 påsklov
 Vecka 16
+Vi har bara fortsatt att skriva kod och jag har fortsatt med sidan om oss. Tycker det är framsteg så det är bra.
 
 Vecka 17
 
