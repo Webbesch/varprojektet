@@ -24,7 +24,7 @@ Vecka 16
 Vi har bara fortsatt att skriva kod och jag har fortsatt med sidan om oss. Tycker det är framsteg så det är bra.
 
 Vecka 17
-
+Jag är snart klar med om oss sidan. Jag ska bara få in en bild snyggt brevid. justerat koden och fixat lite och lagt in rätt färger och så.
 Vecka 18
 
 Vecka 19
